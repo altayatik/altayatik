@@ -2,7 +2,7 @@
 ### Hi there 👋
 
 - 🔭 My name is Altay
-- 🌱 I’m currently an Electrical Engineering Student at Purdue University and upcoming Co-Op Electrical Engineer at Bayer
+- 🌱 I’m currently an Electrical Engineering Student at Purdue University and Co-Op Electrical Engineer at Bayer
 - 📫 You can reach me at aatik@purdue.edu
 - 🖥 Visit my personal website @ http://altayatik.com
 - 😄 Pronouns: he/him
