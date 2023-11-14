@@ -2,7 +2,8 @@
 ### Hi there 👋
 
 - 🔭 My name is Altay
-- 🌱 I’m currently an Electrical Engineering Student at Purdue University and Co-Op Electrical Engineer at Bayer
+- 🎓 Purdue University - BSEE'23 Alumni
+- 💡 Advanced Mobility Sytsems Electrical Engineer at Jacobs Engineering Group Inc.
 - 📫 You can reach me at wp7rzzcgfb (at) privaterelay.appleid.com
 - 🖥 Visit my personal website @ https://altayatik.com
 - 😄 Pronouns: he/him
