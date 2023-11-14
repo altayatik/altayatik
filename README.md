@@ -3,7 +3,7 @@
 
 - 🔭 My name is Altay
 - 🌱 I’m currently an Electrical Engineering Student at Purdue University and Co-Op Electrical Engineer at Bayer
-- 📫 You can reach me at aatik@purdue.edu
+- 📫 You can reach me at wp7rzzcgfb (at) privaterelay.appleid.com
 - 🖥 Visit my personal website @ https://altayatik.com
 - 😄 Pronouns: he/him
 
